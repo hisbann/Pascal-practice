@@ -1,2 +1,2 @@
 # KumpulanTugasHisban
-Say @thanks🤓
+Say thanks🤓
